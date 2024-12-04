@@ -1,3 +1,2 @@
 # practica4
-
-Maria 1
+Venga quien escriba primero es el mejor, osea yo. (Víctor)
